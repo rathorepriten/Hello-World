@@ -1,5 +1,5 @@
-👋Hi I'm @rathorepriten
-I am a Economics Sophomore at BITS Hyd
-👀 I’m interested in Mathematics and Computer Sciences.
-🌱 I’m currently learning Machine Learning.
-📫 Reach me at rathorepriten@gmail.com
+👋Hi I'm @rathorepriten /n
+I am a Economics Sophomore at BITS Hyd. /n
+👀 I’m interested in Mathematics and Computer Sciences. /n
+🌱 I’m currently learning Machine Learning. /n
+📫 Reach me at rathorepriten@gmail.com /n
